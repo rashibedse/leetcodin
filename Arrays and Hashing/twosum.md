@@ -26,3 +26,4 @@ public:
 };
 
 Yeah line 14 yeah yeah laugh all u want it is my 3rd problem haha v funny. Im in college now so- imma go home: i dont have time at home to do this but, tomorrow probs fs. 
+Sorry I am cheating a bit but like, I also have to do THM as I am studying for SOC Level 1 and this kinda backtracks for me. I have studied this quite a lot and its solutions so ill write this out tomm I got time
